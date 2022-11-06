@@ -2,7 +2,7 @@
 
 These are the data obtained by the master from the database of major websites, which are highly confidential in China, and he can help you open the Chinese market faster! If you need this information you can contact me! We will trade at a reasonable price!
 
-![](/icons8-gmail-logo.svg)   k_ssl_fmxyoxov6wriwnhjlx@proton.me          ![](/icons8-telegram-app.svg):@cndatas
+![](/icons8-gmail-logo.svg)   k_ssl_fmxyoxov6wriwnhjlx@proton.me          ![](/icons8-telegram-app.svg):  [@cndatas](https://t.me/cndatas)
 
 ##  China 10 million enterprise legal person information
 
